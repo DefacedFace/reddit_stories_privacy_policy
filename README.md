@@ -20,4 +20,4 @@ By using **Reddit Stories**, you acknowledge and agree to the terms outlined in 
 
 ## Contact
 
-If you have any questions about this Privacy Policy, please contact me at [Your Contact Email].
+If you have any questions about this Privacy Policy, please contact me at eric@redditstories.xyz
